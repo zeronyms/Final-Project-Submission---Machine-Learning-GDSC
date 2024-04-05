@@ -1,0 +1,2 @@
+Kristian Suriyadharma
+Universitas Pertamina
